@@ -1,6 +1,4 @@
-Concepts Learned{
 
-}
 
 ### Premium Partners
 
